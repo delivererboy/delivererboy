@@ -1,1 +1,1 @@
-![](https://delivererboy.neocities.org/cutething.png)
+![](https://delivererboy.neocities.org/cutethings.png)
